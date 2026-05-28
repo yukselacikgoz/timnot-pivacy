@@ -3,7 +3,9 @@ Timnot — Gizlilik Politikası / Privacy Policy
 Last updated / Son güncelleme: 2026
 
 ──────────────────────────────────────────────
+
 ENGLISH
+
 ──────────────────────────────────────────────
 
 1. OVERVIEW
@@ -76,7 +78,9 @@ announced on the Store listing page.
 
 
 ──────────────────────────────────────────────
+
 TÜRKÇE
+
 ──────────────────────────────────────────────
 
 1. GENEL BİLGİLER
